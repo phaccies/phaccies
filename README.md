@@ -60,7 +60,7 @@ Award-winning team project—**Best Game in Show**
 
 ## ⚽ Hobbies
 
-- Soccer (avid player & fan)
+- Soccer
 - Comics (especially Batman 🦇)
 - Cooking
 
